@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @ D C
+- 👀 I’m interested in ... dark web
+- 🌱 I’m currently learning ... hacking
+- 💞️ I’m looking to collaborate on ... professional
+- 📫 How to reach me ... snd ID 
+- 😄 Pronouns: ... hacking my biggest goal
+- ⚡ Fun fact: ... every time happy ( y ) some time sad memories so Hard
+- any time im here [ DC ] 
